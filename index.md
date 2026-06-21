@@ -1,6 +1,6 @@
 # Instructions
 
-Acknowledge the moment\
+**A**cknowledge the moment\
 when body noise\
 and distant noise\
 sound together\
@@ -8,7 +8,7 @@ and when pausing to consider\
 which was which\
 a doubt remains
 
-Approaching some person or thing\
+**A**pproaching some person or thing\
 create the feeling of tightening your lungs\
 breathing from the stomach
 
@@ -16,7 +16,7 @@ hold this feeling as if tense\
 upon the edge of something threatening\
 yet continuing to approach
 
-Arm up to side of forehead\
+**A**rm up to side of forehead\
 loose swinging movement\
 at shoulder and elbow\
 eyes fixed on a particular spot\
@@ -24,7 +24,7 @@ approximately one metre from your feet\
 don\'t look at the moving arm\
 yet pay attention to it sweeping through the periphery of your vision
 
-As one goes about\
+**A**s one goes about\
 doing things\
 a feeling or voice\
 will notice and comment\
@@ -35,8 +35,8 @@ do not reject this voice\
 believing that one is better off being more realistic\
 and living easier than a boring conscientious person
 
-At a private moment\
-calmly regard oneself in a mirror\
+**A**t a private moment\
+calmly regard oneself in a mirror
 
 taking the outside edge of each ear\
 between each finger and thumb
@@ -45,13 +45,13 @@ pull
 
 look at yourself until you can\'t help but laugh
 
-Certain places in one\'s routine\
+**C**ertain places in one\'s routine\
 acquire a reputation for creating\
 a good warm desirable feeling\
 ensure that all actions involving\
 them can become purely functional
 
-Dark\
+**D**ark\
 eyes closed\
 dark inside\
 repeatedly think\
@@ -59,7 +59,7 @@ the words come\
 from\
 over here
 
-Doing simple repetitive manual work\
+**D**oing simple repetitive manual work\
 attend carefully to the voice in your head\
 as it begins to rehearse\
 arguements and explainations\
@@ -71,7 +71,7 @@ and return to being alone
 
 feel complete simple interest in the actions of your limbs
 
-Each time interest lingers\
+**E**ach time interest lingers\
 on a person\
 outside your current circle of access\
 cut the imagination off\
@@ -80,7 +80,7 @@ an invitation to oneself\
 to either make an opportunity\
 or coldly end the idea
 
-Find\
+**F**ind\
 moderately busy pavement\
 edged by wall
 
@@ -104,7 +104,7 @@ passing\
 out\
 of vision
 
-Finding oneself\
+**F**inding oneself\
 engaged in strenuous activity\
 discomfort sufficient to feel unable to persist
 
@@ -119,7 +119,7 @@ straining as if holding to it\
 use this tension\
 to persist
 
-Late at night in bed\
+**L**ate at night in bed\
 lying on your right side curled up\
 comfortable\
 limbs consciously positioned\
@@ -136,11 +136,11 @@ through the pillow\
 and concentrate on seeing and believing\
 your imagination of the action
 
-Leave the bedroom window open\
+**L**eave the bedroom window open\
 fall asleep\
 with the air walking over your face
 
-Morning\
+**M**orning\
 lying in bed\
 look towards the ceiling
 
@@ -157,12 +157,12 @@ to the top right hand corner of your eyelid
 
 watch the spot appearing in the lower left\
 
-Obtain a small sphere\
+**O**btain a small sphere\
 occasionally letting it fall\
 roll\
 and stop
 
-Sit straight\
+**S**it straight\
 hands gently together\
 resting\
 on and between your thighs\
@@ -178,7 +178,7 @@ simultaneously close the right eye\
 and as if changing windows\
 open the left
 
-Sitting relaxed\
+**S**itting relaxed\
 eyes closed\
 bright sunlight on your face
 
@@ -194,7 +194,7 @@ shard like myriad spectrum effects
 
 concentrate upon the sharpness of the colour
 
-Some place\
+**S**ome place\
 when forced to wait\
 and nothing there to do
 
@@ -203,7 +203,7 @@ for flaws dismissed as only in the eyes
 
 include them within the scene
 
-Stand alone\
+**S**tand alone\
 within your room\
 left hand in trouser pocket
 
@@ -219,7 +219,7 @@ placed above and behind the ear
 beat repeatedly yet gently against your head\
 eyes fixed upon the jerking floor
 
-Walking
+**W**alking
 
 abruptly shut your eyes\
 continuing to walk in the lingering image of the way ahead
@@ -228,7 +228,7 @@ when reaching a point of complete insecurity\
 with eyes rapidly open and shut\
 reorientate yourself and proceed
 
-While awaiting slumber\
+**W**hile awaiting slumber\
 lie on your back\
 head and shoulders well propped upon the pillow\
 legs crossed\
