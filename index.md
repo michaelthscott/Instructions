@@ -1,3 +1,7 @@
+---
+layout: home
+---
+
 # Instructions
 
 **A**cknowledge the moment\
