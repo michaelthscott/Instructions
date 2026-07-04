@@ -2,8 +2,6 @@
 layout: home
 ---
 
-# Instructions
-
 **A**cknowledge the moment\
 when body noise\
 and distant noise\
