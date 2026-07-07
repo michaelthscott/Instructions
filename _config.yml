@@ -1,4 +1,9 @@
 title: Instructions
 description: Some things to do
+author: Michael T. H. Scott
 theme: minima
+baseurl: /Instructions
+collections:
+  Instructions:
+    output: true
 
